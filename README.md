@@ -1,4 +1,4 @@
-- Hi, I’m @MalletteGaming
+- Hi, I’m MalletteGaming. I make Minecraft origins... a lot of them
 
 
 <!---
